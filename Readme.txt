@@ -1,0 +1,1 @@
+halo nama saya Sulpisius Bernikusti Mentik, seorang mahasiswa Sistem Informasi Unmul Angkatan 2021 kelas C
